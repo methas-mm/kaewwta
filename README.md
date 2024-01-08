@@ -1,4 +1,4 @@
-### Hi there. I'm Kaewta 👋
+### Hi there. I'm Methas 👋
 
 ## Skills:
 
